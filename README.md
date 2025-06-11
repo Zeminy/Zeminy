@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zeminy
-- 👀 I’m interested in palying game, sport and coding
+- 👀 I’m interested in playing game, sport and coding
 - 🌱 I’m currently learning a information technology
 - 💞️ I’m looking to collaborate on with a person who wanna success
 - 📫 How to reach me: khanhhoang02468@gmail.com, https://www.facebook.com/khanh.hoang.279371?locale=vi_VN
